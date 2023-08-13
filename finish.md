@@ -1,0 +1,1 @@
+Thank you for going through the tutorial. Video with explanations can be found on youtube!
